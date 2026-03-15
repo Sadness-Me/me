@@ -17,3 +17,11 @@ My name is my own creation of OC, I love her, and I also love my husband, when I
 I am lonely in pony town, you can come and chat with me anytime:)!!!
 If you need to find someone to vent, then please don't try to find me, because I am under a lot of pressure and I have mental illness.
 I am often silent and sometimes I may say dirty words, so you try to get used to it or leave it alone, because I did not say you!
+
+——————————————————————————————————————————————————————————————————————✨
+
+I don't know how to upload pictures on this software. Sorry, I can't use it.
+I'm not good at socializing and expressing because I'm afraid of society, but I will try my best to express it.
+On pony town, I will only give my own inspiration to my husband and my brother, and I will not give you any of my creative inspiration before I know you or don't know you.
+I don't like to be made fun of too much. If it's serious, I will cry and tell my husband everything!
+When you want to send me a private message, I advise you not to do so, because every time I see someone send me a private message, I am very afraid, very nervous, I am very afraid, I think I have done something, so please say on the public screen, I can see or sit next to me.
